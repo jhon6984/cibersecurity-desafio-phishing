@@ -19,4 +19,5 @@
 
 ### Resutados
 
-![Captura de Tela (1)](https://github.com/user-attachments/assets/f19c853f-0a2a-45be-89a5-f33d456ea7d1)
+![Captura de Tela (6)](https://github.com/user-attachments/assets/781a880d-77ac-4950-92df-a51f965ed073)
+
